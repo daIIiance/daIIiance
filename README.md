@@ -1,10 +1,13 @@
 <div align="center">
 <details>
 <summary></summary>
-
- ️ ️ ️ ️ ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤrufus / ruffieㅤㅤit any
-ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤfictionkinㅤ+ㅤdbls iwc
-ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤunlabeledㅤㅤㅤaroace  
+<div align="center">
+rufus / ruffieㅤㅤit any
+ <div align="center">
+fictionkinㅤ+ㅤdbls iwc
+  <div align="center">
+unlabeledㅤㅤㅤaroace  
+   <div align="center">
 c+h plsㅤtabbedㅤ bmf
 <div align="center">
 <img src="images/example.png">
