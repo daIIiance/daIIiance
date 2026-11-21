@@ -1,3 +1,13 @@
-<p align="center"> 
- <img src="https://i.postimg.cc/4NpRhw1q/IMG-0410.webp">
-  
+<div align="center">
+<details>
+<summary></summary>
+
+ ️ ️ ️ ️ ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤrufus / ruffieㅤㅤit any
+ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤfictionkinㅤ+ㅤdbls iwc
+ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤunlabeledㅤㅤㅤaroace  
+c+h plsㅤtabbedㅤ bmf
+<div align="center">
+<img src="images/example.png">
+</details>
+
+</div>
