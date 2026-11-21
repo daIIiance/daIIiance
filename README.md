@@ -9,8 +9,8 @@ fictionkinㅤ+ㅤdbls iwc
 unlabeledㅤㅤㅤaroace  
    <div align="center">
 c+h plsㅤtabbedㅤ bmf
-<div align="center">
-<img src="images/example.png">
+    <div align="center">
+ <img src="https://files.catbox.moe/0nfiou.gif">
 </details>
 
 </div>
